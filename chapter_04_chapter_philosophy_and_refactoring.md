@@ -1,0 +1,1 @@
+https://bgm-station.com/tc/
